@@ -1,2 +1,2 @@
 ## Hi there 👋
-<img width="736" height="685" alt="a55c49ccfca74d47b6e65bce252369df~tplv-jj85edgx6n-image-origin" src="https://github.com/user-attachments/assets/61a0a563-9c9c-4274-824e-c4e99ee4221d" />
+<img width="480" height="380" alt="Shrek Shrek Meme GIF - Shrek Shrek meme Shrek staring - Descobrir e Compartilhar GIFs" src="https://github.com/user-attachments/assets/71f9471a-1323-4a73-9734-cdb74aa3619d" />
